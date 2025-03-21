@@ -4,9 +4,9 @@ The [**CSCS Health and Safety Test Online**](https://dynamiseducation.co.uk/cscs
 
 ## What is the CSCS Health and Safety Test Online?
 
-The **CSCS Health and Safety Test Online** is a digital version of the traditional CSCS test, designed to assess your knowledge of essential safety practices in the construction industry. The test covers key topics, including risk management, hazard identification, emergency procedures, and personal protective equipment (PPE). It is a prerequisite for obtaining the CSCS Card required to work on most UK construction sites.
+That is a digital version of the traditional CSCS test, designed to assess your knowledge of essential safety practices in the construction industry. The test covers key topics, including risk management, hazard identification, emergency procedures, and personal protective equipment (PPE). It is a prerequisite for obtaining the CSCS Card required to work on most UK construction sites.
 
-## Why Take the CSCS Health and Safety Test Online?
+## Why Take the CSCS Health and Safety Test?
 
 Taking the **CSCS Health and Safety Test Online** is a flexible and accessible option for those who need to complete the test but prefer not to attend in-person testing centres. It is perfect for busy professionals who want to study and complete the test at their own pace. By passing the test, you demonstrate your competence in health and safety practices, increasing your job prospects in the construction industry.
 
@@ -28,7 +28,7 @@ Preparation is essential to pass the **CSCS Health, Safety, and Environment Test
 
 ## How to Book Your CSCS Health and Safety Test Online
 
-You can easily book your **CSCS Health and Safety Test** through the official CSCS website or [an accredited test provider](https://dynamiseducation.co.uk/cscs-test-manchester/). Make sure to select the correct test that aligns with your role in the construction industry.
+You can easily book your **Test** through the official CSCS website or [an accredited test provider](https://dynamiseducation.co.uk/cscs-test-manchester/). Make sure to select the correct test that aligns with your role in the construction industry.
 
 ## Get Your CSCS Card After Passing the Test
 
